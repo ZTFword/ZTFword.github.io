@@ -1,1 +1,0 @@
-# ZTFword.github.io
